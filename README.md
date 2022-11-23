@@ -1,0 +1,3 @@
+- 👋 oie sou @YasmimSBrito
+- 👀 gosto de historia politica e pscologia
+- 🌱 futura estudante de direito (se deus quiser)
